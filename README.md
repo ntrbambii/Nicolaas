@@ -5,7 +5,7 @@ I am a newly graduated Grade 12 student with a strong passion for technology, cy
 
 As I look to pursue my higher education journey in the field of cybersecurity and to learn more about digital infrastructure, artificial intelligence, and maintaining a secured data infrastructure. I am committed to:
 
-• Strengthen and Develop both my technical and practical skills.
+• Strengthen and develop both my technical and practical skills.
 
 • Building professional connections.
 
